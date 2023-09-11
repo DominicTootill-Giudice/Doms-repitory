@@ -1,4 +1,4 @@
-# Doms-repitory
+# Reading Notes
 Hi, I'm Dominic Tootill-Giudice but for easier communication it's normally Dom 
 What Is Growth Mindset to me 
 
