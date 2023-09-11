@@ -13,3 +13,8 @@ Many methods to remind yourself of how to keep yourself in a growth mindset:
 :Make a physical note
 
 :Someone can remind you
+
+
+If you are finding it difficult to come up with ways to remind yourself of growth mindsets, you can contact this number: 1234567890 and/or this e-mail: exampleemail12@gmail.com 
+
+Or you can click on this link that will help guide you: !https://hbr.org/2016/01/what-having-a-growth-mindset-actually-means 
