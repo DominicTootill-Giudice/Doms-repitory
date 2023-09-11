@@ -1,5 +1,5 @@
 # Reading Notes
-Hi, I'm Dominic Tootill-Giudice but for easier communication it's normally Dom 
+Hi, I'm Dominic Tootill-Giudice but for easier communication it's normally Dom. 
 What Is Growth Mindset to me 
 
 To me, growth mindset is setting a goal or a plethora of goals that you have set yourself and planning to achieve those goals and those goals can be anything professional or not. Setting challenges that will help you reach to you're end goals.
